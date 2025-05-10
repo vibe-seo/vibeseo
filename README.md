@@ -1,2 +1,2 @@
 # vibeseo
-Vibe Coding for SEO: https://vibeseo.net
+Vibe Coding for SEO Marketing: https://vibeseo.net
